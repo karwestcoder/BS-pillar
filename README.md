@@ -1,1 +1,1 @@
-https://bsuosktsoal.cc/
+https://hubdjvnjsdf.cc/
